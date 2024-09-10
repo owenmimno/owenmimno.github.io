@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+I am a sociology major at New York University.
 
-Maybe say a some things about yourself.
+I enjoy social data science, spreadsheets, linguistics, geography, old movies, and classical music. I am trying to get better at photography, playing piano, and writing (thus the blog).
 
-Or maybe what you plan to blog about.
+This fall I am studying abroad in Prague, Czechia. Consequently, this blog doubles as a record of my travels.
